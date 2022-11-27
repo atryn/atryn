@@ -2,7 +2,7 @@
   
    <br>
 <p align="center">  
-<img src="https://media.tenor.com/w00vOil9ZR0AAAAd/phantomtroupex.gif">
+<img src="https://media.tenor.com/aQPxl1mzh2wAAAAi/weed-tharx.gif">
 </p>
 <p align="center">
    <br>
